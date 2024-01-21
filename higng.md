@@ -1,6 +1,8 @@
 call me Xyphonix or rj, id use rj since its shorter
 ##
-i do very unoptimized coding and i suck at punctuations, spelling, or capitalization
+i do very unoptimized and unoranized coding and i suck at punctuations, spelling, or capitalization
+##
+i do not have any good practices when it comes to coding, so please dont look into my spaghetti code
 ##
 i also have 1 karma on reddit (i dont use reddit)
 ##
